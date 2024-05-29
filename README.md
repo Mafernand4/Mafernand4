@@ -9,6 +9,6 @@ Meu nome é Maria Fernanda
 -Utilizo esse espaço para minha organizaçao e compartilhamento dos meus projetos desenvolvidos
 
 ### Entre em contato comigo 📫
-mananfefe@gmail.com
+00001105521357sp@al.educacao.sp.gov.br
 
 ![](https://media1.tenor.com/m/GaM2IijvoOUAAAAd/shy-dog-dog.gif))
